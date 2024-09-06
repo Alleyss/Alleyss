@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **vsaipranav2004@gmail.com**
 
-- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/1UBZiZZYUjzKKlgnRPgzj7-1bfUQav5OE/view?usp=drive_link)
+- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/1T4fx_-VIhVqTzdzfJN6GIlNQASnC-kDD/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
